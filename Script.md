@@ -19,6 +19,7 @@ He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
 Normally George would leave well enough alone, but he was worried that an animal might escape.
 He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
+The zookeeper would simply watch the boy from afar. Learning his patterns. Almost as if he was hunting him.
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
